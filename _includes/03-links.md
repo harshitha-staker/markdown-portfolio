@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[LinkedIn - Harshitha Mittapalli](https://www.linkedin.com/in/harshitha-mittapalli-9936bb172/)
